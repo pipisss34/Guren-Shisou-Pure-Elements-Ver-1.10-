@@ -1,0 +1,1 @@
+# Guren-Shisou-Pure-Elements-Ver-1.10-
