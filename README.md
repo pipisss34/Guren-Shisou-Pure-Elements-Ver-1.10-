@@ -7,4 +7,5 @@ update perbaikan bug translate
 3. buka joiplay dan mainkan
 
 
-link download https://sfile.co/zDFLvNcpNSE
+link download 
+https://archive.org/details/guren-shisou-pure-elements-ver-1.10-sfile.-mobi
